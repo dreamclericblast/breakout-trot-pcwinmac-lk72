@@ -1,4 +1,4 @@
-# 
+# Professional breakout trading bot plugins for Mac OS | Elite breakout trading bot plugins for PC Windows. Featuring dex liquidity pools and centralized exchange api — optimized for maximum performance.
 
 
 
